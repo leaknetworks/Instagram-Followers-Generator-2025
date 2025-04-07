@@ -1,3 +1,3 @@
 User-agent: *
 Allow: /
-Sitemap: {{ tools.redeemcodepro.com }}/sitemap.xml
+Sitemap: https://tools.redeemcodepro.com/sitemap.xml
