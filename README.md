@@ -1,9 +1,9 @@
 # 🚨 UPDATED: 10000 robux free Latest April 2025
-[![Free Robux Generator 2025](https://i.imgur.com/mbYOg3o.png)](https://robux.redeemcodepro.com)
+[![Free Robux Generator 2025](https://i.imgur.com/mbYOg3o.png)]()
 **⚠️ WARNING:** Public bots get patched quickly. We moved to a private server:  
 # 🔒 Private Robux Generator 2025 (V3 API)
-[ Get Instant 10000 Robux Claim Here](https://robux.redeemcodepro.com)  
-[ Get Instant 10000 Robux Claim Here](https://robux.redeemcodepro.com)  
+[ Get Instant 10000 Robux Claim Here](https://giftcard.redeemcodepro.com)  
+[ Get Instant 10000 Robux Claim Here](https://giftcard.redeemcodepro.com)  
 
 **⚠️ ALERT:** Public generators are banned. Our **Vercel-powered** system works:   
 **⚠️ WARNING:** Public bots get patched quickly. We moved to a private server:  
